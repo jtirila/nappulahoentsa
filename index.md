@@ -15,4 +15,4 @@ Tulossa pallopelejä noin 2009-2013 syntyneille lapsille, kunhan koronarajoituks
 
 ## Yhteydenotot
 
-Voit lähettää toimintaan liittyen tiedusteluja [Yhteydenottokaavakkeella](https://forms.gle/AeVpAjZiP6UYw5vh8)
+Voit lähettää toimintaan liittyen tiedusteluja [yhteydenottokaavakkeella](https://forms.gle/AeVpAjZiP6UYw5vh8).

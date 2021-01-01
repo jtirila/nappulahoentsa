@@ -13,4 +13,4 @@ Tulossa pallopelejä noin 2009-2013 syntyneille lapsille, kunhan koronarajoituks
 
 ## Yhteydenotot
 
-https://forms.gle/AeVpAjZiP6UYw5vh8 / 044 573 9722 (J-M Tirilä)
+Voit lähettää toimintaan liittyen tiedusteluja [Yhteydenottokaavakkeella](https://forms.gle/AeVpAjZiP6UYw5vh8)

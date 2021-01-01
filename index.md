@@ -10,6 +10,8 @@ Tulossa pallopelejä noin 2009-2013 syntyneille lapsille, kunhan koronarajoituks
 - Asianmukaiset ja oikean kokoiset välineet
 - Seuratoiminnan parhaat puolet: hyvä tiedotus, yhtenäiset peliasut, vakuutukset kunnossa
 - Puhtaasti harrastetoimintaa, ei kilpailullisia tavoitteita. Ei tarkoita, ettei mihinkään harrastepeleihin / ystävyysotteluihin voitaisi osallistua, vaan että tämä kaikki tehdään lasten ehdoilla ja toiveesta
+- Toiminnan ohjaaminen pohjaa löyhästi ekologisen dynamiikan / epälineaarisen pedagogiikan periaatteisiin
+
 
 ## Yhteydenotot
 

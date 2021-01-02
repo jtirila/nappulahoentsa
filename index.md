@@ -1,6 +1,6 @@
 (Päivitety 2.1.2021)
 
-Tulossa pallopelejä noin 2009-2013 syntyneille lapsille, kunhan koronarajoitukset hellittävät. Tarkempi ikähaarukka ja muutkin detaljit selviävät tuonnempana.
+Tulossa pallopelejä noin 2009-2013 syntyneille lapsille, kunhan koronarajoitukset hellittävät. Tarkempi ikähaarukka ja muutkin detaljit selviävät tuonnempana. Sijainti: Koskela/Toppila/Tuira/Linnanmaa/Rajakylä, Oulu.
 
 ## Toiminnan periaatteet
 - Monilajisuus: ainakin jalkapallo/futsal, salibandy, pipolätkä

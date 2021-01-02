@@ -1,4 +1,4 @@
-(Päivitety 1.1.2021)
+(Päivitety 2.1.2021)
 
 Tulossa pallopelejä noin 2009-2013 syntyneille lapsille, kunhan koronarajoitukset hellittävät. Tarkempi ikähaarukka ja muutkin detaljit selviävät tuonnempana.
 
